@@ -1,0 +1,2 @@
+langkah pembuatan images :
+
